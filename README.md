@@ -1,0 +1,1 @@
+# three-scenarios-of-revenue-inhancement-for-hotel-XYZ
